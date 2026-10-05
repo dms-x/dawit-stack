@@ -1,1 +1,1 @@
-this is the founding members of Dawit Inc.
+these are the founding members of Dawit Inc.
